@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AARM890224MBCLVN08
+AARM890224MBCLVN08
